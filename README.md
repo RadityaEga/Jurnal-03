@@ -1,0 +1,1 @@
+# Jurnal03_6706210103_Raditya-Ega
